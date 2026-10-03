@@ -1,0 +1,1 @@
+# Exerc-cios-Banco-De-Dados-Etec-2026
